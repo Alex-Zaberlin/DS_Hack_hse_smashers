@@ -12,3 +12,5 @@
 Козлов Егор: [tg](https://t.me/ekv24)
 
 Тищенко Егор: [tg](https://t.me/egor_jpeg)
+
+Арзамазов Никита : [tg](https://t.me/arz_nik)
