@@ -10,3 +10,5 @@
 Забелин Алексей: [tg](https://t.me/zaberlin)
 
 Козлов Егор: [tg](https://t.me/ekv24)
+
+Тищенко Егор: [tg](https://t.me/egor_jpeg)
