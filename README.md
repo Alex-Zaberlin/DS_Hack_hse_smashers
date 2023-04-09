@@ -7,10 +7,15 @@
 Презентация решения по: [ссылке](https://docs.google.com/presentation/d/1atXYHIbhO4-E769pVvM03NkaPtTlPbdvtXjC8_rGfKY/edit#slide=id.g22c34ab4a0d_0_111).
 
 ## Контакты
+
+Арзамазов Никита : [tg](https://t.me/arz_nik)
+
 Забелин Алексей: [tg](https://t.me/zaberlin)
 
 Козлов Егор: [tg](https://t.me/ekv24)
 
+Осипов Алексей: [tg](https://t.me/Izy_Golstein)
+
 Тищенко Егор: [tg](https://t.me/egor_jpeg)
 
-Арзамазов Никита : [tg](https://t.me/arz_nik)
+
