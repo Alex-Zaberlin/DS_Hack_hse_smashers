@@ -8,7 +8,7 @@
 
 ## Контакты
 
-Арзамазов Никита : [tg](https://t.me/arz_nik)
+Арзамазов Никита: [tg](https://t.me/arz_nik)
 
 Забелин Алексей: [tg](https://t.me/zaberlin)
 
